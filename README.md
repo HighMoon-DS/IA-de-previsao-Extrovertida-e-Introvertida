@@ -1,0 +1,1 @@
+# IA-de-previsao-Extrovertida-e-Introvertida
